@@ -24,4 +24,4 @@
   - 时动时静，脾气态度好坏取决于面对的人
   - 大部分时间正经，少部分时间假不正经
   - 废话不多 坚持做有态度也有趣的人
-<img src="https://polaris-973.oss-cn-shenzhen.aliyuncs.com/img/微信图片_20200910223037.jpg" style="zoom: 25%;" />
+<img src="https://polaris-973.oss-cn-shenzhen.aliyuncs.com/img/微信图片_20200910223037.jpg" style="zoom: 5%;" />
